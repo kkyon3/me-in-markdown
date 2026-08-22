@@ -12,9 +12,10 @@ This year I am looking to challenge myself and attempt to plan a bit better than
 My favorite song on the playist is **"Beaches"** by Beabadoobee
 
 
-* ### My most recent painting:
+* ### My most recent painting🎨:
  ![alt text](image.png)
 
 
-* ### My Summer Collage 
+* ### My Summer Collage ☀️:
 ![alt text](image-1.png)
+
