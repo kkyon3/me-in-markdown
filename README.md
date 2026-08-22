@@ -13,4 +13,4 @@ My favorite song on the playist is **"Beaches"** by Beabadoobee
 
 
 * ### My Summer Collage 
-![alt text](image-3.png)
+![alt text](image-1.png)
